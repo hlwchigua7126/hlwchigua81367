@@ -12,7 +12,7 @@
 
 <a href="https://jinriheiliao99.pages.dev/">今日黑料</a>
 
-<a href="https://heiliaowangjinri2.pages.dev/">黑料专区/a>
+<a href="https://heiliaowangjinri2.pages.dev/">黑料专区</a>
 
 <a href="https://heiliaozhengnengliang-99.pages.dev/">黑料不</a>
 
@@ -20,7 +20,7 @@
 
 <a href="https://heiliaowangjin01.pages.dev/">黑料吃瓜</a>
 
-<a href="https://heiliaoshedujia01.pages.dev/">黑料社/a>
+<a href="https://heiliaoshedujia01.pages.dev/">黑料社</a>
 
 <a href="https://heiliaomendujia-1.pages.dev/">黑料门</a>
 
@@ -30,7 +30,7 @@
 
 <a href="https://heiliaobuda01.pages.dev/">吃瓜</a>
 
-<a href="https://heiliaozhengneng.pages.dev/">51官网/a>
+<a href="https://heiliaozhengneng.pages.dev/">51官网</a>
 
 <a href="https://heiliaozheng01.pages.dev/">51官网</a>
 
